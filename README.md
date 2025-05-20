@@ -1,4 +1,4 @@
-## Meu perfil minha vida 💅
+## O conhecimento só depende do seu querer
 
  <div>
    <a href="https://github.com/iPrench">
